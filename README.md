@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+I'm in love with my girlfriend but i cant make her laugh because she don't think i'm funny, help.
+
 <!--
 **SirSweazzyyy/SirSweazzyyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
